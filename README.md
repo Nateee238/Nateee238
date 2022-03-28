@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Nateee238
+- 👀 I’m interested in Making an FPS game, Getting a better computer, and learning how to code/script.
+- 🌱 I’m currently learning how to code.
+- 💞️ I’m looking to collaborate on a new FPS game on ROBLOX.
+- 📫 How to reach me: Discord, ROBLOX, Spotify, and YouTube
